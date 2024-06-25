@@ -5,7 +5,7 @@
 ## About Me
 
 I'm an IT graduate from KMIT currently working as an ASDE at Brane.
-*Travel Enthusiast I absolutely love traveling to mountains,beaches and Coffee Conversations:*
+*I absolutely love traveling to mountains,beaches and Coffee Conversations:*
 
 
 <h3>Where to find me</h3>
